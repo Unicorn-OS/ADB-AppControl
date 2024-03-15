@@ -1,0 +1,1 @@
+- [[XDA] ADB App Control | Manage Your Device From Your PC](https://youtu.be/tm7n1WGl1VM)
